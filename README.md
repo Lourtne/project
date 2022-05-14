@@ -1,3 +1,2 @@
 # project
 # project
-ти пидор
